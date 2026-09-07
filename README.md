@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AACC960926MVZLHT02
+AACC960926MVZLHT02
